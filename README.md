@@ -6,7 +6,7 @@
 
 ### 👯 I’m looking to collaborate on **startups and projects**
 
-### 🤝 I’m looking for help with **Entrepreneur**
+### 🤝 I’m looking to become **Entrepreneur**
 
 ### 📫 How to reach me **karthickop6@gmail.com**
 
