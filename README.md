@@ -2,12 +2,17 @@
 
 
 
-### 🌱 I’m currently learning **mobile app,IOT pentesting**
+### ***🌱 I’m currently learning **mobile app,IOT pentesting**
 
-### 👯 I’m looking to collaborate on **startups and projects**
+### ***👯 I’m looking to collaborate on **startups and projects**
 
-### 🤝 I’m looking for help with **entrepreneur**
+### ***🤝 I’m looking for help with **Entrepreneur**
 
-### 📫 How to reach me **karthickop6@gmail.com**
+### ***📫 How to reach me **karthickop6@gmail.com**
 
-### ⚡ Fun fact **my capacity is far high!**
+### ***⚡ Fun fact **my capacity is far high!**
+
+
+
+
+
