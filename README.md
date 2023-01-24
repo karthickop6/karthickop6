@@ -18,7 +18,22 @@
 
 
 
-### How the internet works and the web development projects
+### How the internet works and the web development:
+![certfication](./website%20bascics.jpg)
+
+
+### Web application pentesting:
+![certification:](./website%20hacking.jpg)
+
+
+### Security auditing with Nmap:
+![certification:](./nmap.jpeg)
+
+
+### offensive Security:
+![certification:](./offensive%20cert.jpeg)
+
+
 
 
 
