@@ -2,7 +2,7 @@
 
 
 
-### 🌱 I’m currently learning **mobile app,IOT pentesting**
+### 🌱 I’m currently learning **mobile app,IOT pentesting👨🏻‍💻**
 
 ### 👯 I’m looking to collaborate on **startups and projects**
 
@@ -14,7 +14,7 @@
 
 
 
-### ```SOME OF MY CERTIFICATIONS🧑🏼‍🎓 ARE:```
+### ```SOME OF MY CERTIFICATIONS🪪 ARE:```
 
 
 
