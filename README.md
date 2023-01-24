@@ -14,7 +14,7 @@
 
 
 
-### ```SOME OF MY CERTIFICATIONS ARE:```
+### ```SOME OF MY CERTIFICATIONS🧑🏼‍🎓 ARE:```
 
 
 
