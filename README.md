@@ -10,7 +10,7 @@
 
 ### 📫 How to reach me **karthickop6@gmail.com**
 
-### ⚡ Fun fact **my capacity is far high!**
+### ⚡ Fun fact: **"my capacity is far high!"**
 
 
 
