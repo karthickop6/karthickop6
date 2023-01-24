@@ -14,11 +14,11 @@
 
 
 
-###SOME OF MY CERTIFICATIONS ARE:
+### SOME OF MY CERTIFICATIONS ARE:
 
 
 
-###How the internet works and the web development projects
+### How the internet works and the web development projects
 
 
 
