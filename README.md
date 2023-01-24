@@ -34,6 +34,22 @@
 ![certification:](./offensive%20cert.jpeg)
 
 
+### Certifications by GOVERNMENT OF INDIA:
+
+
+### Cyber ethics:
+![certification](./cyber%20ethics%20certificate.jpg_page-0001.jpg)
+
+
+### Password security:
+![certification](./password%20management%20certificate_page-0001.jpg)
+
+
+### Facebook security:
+![certification](./face%20book%20security%20certificate_page-0001.jpg)
+
+### Browser security:
+![certification](./browser%20security%20certificate_page-0001.jpg)
 
 
 
